@@ -41,4 +41,3 @@
 ---
 
 ⭐ Always open to learning and new opportunities!
-   this is the prctice 
